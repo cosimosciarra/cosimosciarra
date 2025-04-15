@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @cosimosciarra. I’m an economic analyst experienced in macroeconomics.
-- 📫 How to reach me: cosimo.sciarra@gmail.com
   
 
 <!---
